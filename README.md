@@ -1,2 +1,2 @@
 # awe
-Keep this a secret from teachers
+The awe unblocked games website is coming soon!
